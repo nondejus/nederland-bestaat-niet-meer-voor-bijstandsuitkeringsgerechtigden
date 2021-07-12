@@ -1,0 +1,1 @@
+# nederland-bestaat-niet-meer-voor-bijstandsuitkeringsgerechtigden
